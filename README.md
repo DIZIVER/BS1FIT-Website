@@ -19,4 +19,4 @@ Key Features:
 
 ## Contact
 
-If you want to contact me you can reach me at my [Website](https://www.saurjya.in)
+If you want to contact us you can reach us at oue [Website](https://www.diziver.com)
